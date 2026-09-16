@@ -11,3 +11,4 @@ lets go my boy
 an ill-considered change 
 ## this is my first project and i rememebr when i was a junior in high school i made a cooking video of me making guacamole.
 ## so some people thought it was weird because i put mayo in my  guacamole recipe
+## ADAN is locked in but hes the only one 
